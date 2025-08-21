@@ -1,0 +1,1 @@
+Inventario mecatrónico
